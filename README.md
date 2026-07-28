@@ -1,4 +1,8 @@
-## Hi there 👋
+![hippo](https://cdn.imageurlgenerator.com/uploads/8017c8d2-885c-4ac4-9619-e360ea90cae1.gif)
+> <p align="center">« 突然変異じゃない <br>
+> ただの僕さ <br>
+> $${\color{red}X}$$ とか $${\color{blue}Y}$$ とか。»</p>
+
 
 <!--
 **livingmillennium/livingmillennium** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
