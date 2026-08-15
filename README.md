@@ -2,7 +2,7 @@
 > ただの僕さ <br>
 > $${\color{red}X}$$ とか $${\color{blue}Y}$$ とか。»</p>
 [![Villain](https://cdn.imageurlgenerator.com/uploads/8017c8d2-885c-4ac4-9619-e360ea90cae1.gif)](https://youtu.be/p9FJXfGHtDA?si=PCsskBZR2gcF-TEY)
-<!--kill yourself i hate you -->
+<!--All of you make me sick,kys please.. -->
 
 
 
