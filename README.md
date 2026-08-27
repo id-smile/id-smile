@@ -1,7 +1,7 @@
 > <p align="center">『 燻んでしまったの灰色に <br>
 > こんな才能なんて借り物 <br>
 > ❝ $\color{blue}{\text{まだ人生終わっていないから}}$ <br>
-> $\color{blue}{\text{諦めんなって!}}$ ❞ - 誰かの声。</p>
+> $\color{blue}{\text{諦めんなって!}}$ ❞ - 誰かの声。』</p>
 [![Blue Period](https://cdn.imageurlgenerator.com/uploads/bd5b683a-a0b5-45c5-9e30-e10ba8b5afe7.gif)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
 <!--All of you make me sick,kys please.. -->
 
