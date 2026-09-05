@@ -1,5 +1,5 @@
 
-<p align="center"> ──── ‧˚꒰🎨୭ ˚. ──── <br>
+<p align="center"> ──── ‧˚₊⊹𐔌՞ ܸ.ˬ.ܸ՞𐦯˚⊹₊ ݁ ──── <br>
   
 [![Blue Period](https://cdn.imageurlgenerator.com/uploads/98d1a55d-2675-4a57-bc9c-67ae7d278813.jpeg)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
 <!--
