@@ -11,7 +11,8 @@
   <i>‴ 𝘔𝘺 𝘣𝘰𝘥𝘺 𝘪𝘴 𝘭𝘪𝘬𝘦 𝘢 𝘭𝘶𝘮𝘱𝘺 𝘦𝘳𝘢𝘴𝘦𝘳 𝘸𝘪𝘵𝘩 𝘳𝘢𝘯𝘥𝘰𝘮 𝘱𝘢𝘵𝘤𝘩𝘦𝘴 𝘰𝘧 𝘩𝘢𝘪𝘳, 𝘪𝘵’𝘴 𝘢 𝘭𝘰𝘵 𝘮𝘰𝘳𝘦 𝘱𝘪𝘵𝘪𝘧𝘶𝘭 𝘵𝘩𝘢𝘯 𝘐 𝘵𝘩𝘰𝘶𝘨𝘩𝘵. ‷<i>
 
 <p align="center">
-  <a href=https://hthtw4.straw.page>‎ ‎ . ݁⋆ 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦‎˖ . ݁</a>  <a href=https://hthtw4.straw.page>⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a>
+  <a href=https://hthtw4.straw.page>‎ ‎ . ݁⋆ 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦‎˖ . ݁</a>  
+  <a href=https://4everblue.atabook.org/> ⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a>
 </p>
 
 
