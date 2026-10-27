@@ -1,14 +1,19 @@
 
 <p align="center"> ──── ‧˚⊹₊ ݁ ──── <br>
   
-[![Blue Period](https://cdn.imageurlgenerator.com/uploads/98d1a55d-2675-4a57-bc9c-67ae7d278813.jpeg)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
+[![Blue Period](gif)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
 <!--
 </p> <div align="right" style="margin-top: 8px;">
-        <i style="color: #8b949e; font-size: 0.5em;">- 𝙔𝙖𝙜𝙪𝙘𝙝𝙞 𝙔𝙖𝙩𝙤𝙧𝙖</i>
+        <i style="color: #8b949e; font-size: 0.5em;">- Makoto Yukey </i>
 </div> --->
 
 <p align="center">
-  <i>‴ 𝘔𝘺 𝘣𝘰𝘥𝘺 𝘪𝘴 𝘭𝘪𝘬𝘦 𝘢 𝘭𝘶𝘮𝘱𝘺 𝘦𝘳𝘢𝘴𝘦𝘳 𝘸𝘪𝘵𝘩 𝘳𝘢𝘯𝘥𝘰𝘮 𝘱𝘢𝘵𝘤𝘩𝘦𝘴 𝘰𝘧 𝘩𝘢𝘪𝘳, 𝘪𝘵’𝘴 𝘢 𝘭𝘰𝘵 𝘮𝘰𝘳𝘦 𝘱𝘪𝘵𝘪𝘧𝘶𝘭 𝘵𝘩𝘢𝘯 𝘐 𝘵𝘩𝘰𝘶𝘨𝘩𝘵. ‷<i>
+  <i>
+    ᴄᴏʟᴏʀ ᴀ ᴛᴏᴡɴ ᴡɪᴛʜ ᴍʏ ʟɪɢʜᴛ
+   ⋆ ꜰᴏʀ ᴇᴠᴇʀʏ ᴍᴏᴍᴇɴᴛ ꜱʜᴀʀᴇᴅ ᴡɪᴛʜ ʏᴏᴜ
+   ⋆ ɴᴏᴛ ᴏᴜᴛ ɪɴ ᴛʜᴇ ᴅᴀʏ
+   ⋆ ʙᴜᴛ ɴᴇᴠᴇʀ ꜰᴜʟʟʏ ɢᴏɴᴇ.
+    <i>
 
 <p align="center">
   <a href=https://hthtw4.straw.page>‎ ‎ . ݁⋆ 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦‎˖ . ݁</a>  
