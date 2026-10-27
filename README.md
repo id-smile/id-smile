@@ -1,7 +1,7 @@
 
 <p align="center"> ──── ‧˚⊹₊ ݁ ──── <br>
   
-[![Blue Period](gif)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
+[![P3](https://cdn.imageurlgenerator.com/uploads/84141c6e-35a1-4175-99f5-47b6d822fb59.gif)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
 <!--
 </p> <div align="right" style="margin-top: 8px;">
         <i style="color: #8b949e; font-size: 0.5em;">- Makoto Yukey </i>
