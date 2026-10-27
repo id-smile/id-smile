@@ -1,12 +1,10 @@
 
-<p align="center"> ──── ‧˚⊹₊ ݁ ──── <br>
   
 [![P3](https://cdn.imageurlgenerator.com/uploads/84141c6e-35a1-4175-99f5-47b6d822fb59.gif)](https://youtu.be/cwLlHFMlBNQ?si=ct-vMP5tf5zoSYeJ)
 <!--
 </p> <div align="right" style="margin-top: 8px;">
         <i style="color: #8b949e; font-size: 0.5em;">- Makoto Yukey </i>
 </div> --->
-
 <p align="center">
   <i>
     ᴄᴏʟᴏʀ ᴀ ᴛᴏᴡɴ ᴡɪᴛʜ ᴍʏ ʟɪɢʜᴛ
@@ -14,7 +12,7 @@
    ⋆ ɴᴏᴛ ᴏᴜᴛ ɪɴ ᴛʜᴇ ᴅᴀʏ
    ⋆ ʙᴜᴛ ɴᴇᴠᴇʀ ꜰᴜʟʟʏ ɢᴏɴᴇ.
     <i>
-
+<!---
 <p align="center">
   <a href=https://hthtw4.straw.page>‎ ‎ . ݁⋆ 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦‎˖ . ݁</a>  
   <a href=https://4everblue.atabook.org/> ⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a>
