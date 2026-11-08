@@ -5,13 +5,15 @@
 </p> <div align="right" style="margin-top: 8px;">
         <i style="color: #8b949e; font-size: 0.5em;">- Makoto Yukey </i>
 </div> --->
-  ![nightwing](62319cf8b24127aba20ad64b520c8862.gif)
 <p align="center">
-   <i> ˚₊‧꒰ა A Knight in Blüdhaven ໒꒱‧₊˚
+  
+  ![nightwing](62319cf8b24127aba20ad64b520c8862.gif)
+  
+   <i> ˚₊‧꒰ა A Knight in Blüdhaven ໒꒱‧₊˚ 
    <i>
-     
-
-      
+   
+   ![nw](d0e867ba87d5c05fb3a56bb436c3f93c.gif)
+   
 <!---
 >  
   <a href=https://4everblue.atabook.org/> ⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a>
