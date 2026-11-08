@@ -5,14 +5,13 @@
 </p> <div align="right" style="margin-top: 8px;">
         <i style="color: #8b949e; font-size: 0.5em;">- Makoto Yukey </i>
 </div> --->
-<center>
-  <gif src="62319cf8b24127aba20ad64b520c8862.gif" alt="nightwing" width="500" />
-</center>
-  
+    
+
   ![nightwing](62319cf8b24127aba20ad64b520c8862.gif)
   <p align="center">
-   <i> ˚₊‧꒰ა A Knight in Blüdhaven ໒꒱‧₊˚ 
-   <i>
+    
+  [![nwing](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=38C2FFBE&width=435&lines=A+Knight+in+Blüdhaven+.)](https://git.io/typing-svg)
+  
 
 
    
