@@ -11,8 +11,8 @@
   
    <i> ˚₊‧꒰ა A Knight in Blüdhaven ໒꒱‧₊˚ 
    <i>
-   
-   ![nw](d0e867ba87d5c05fb3a56bb436c3f93c.gif)
+
+
    
 <!---
 >  
