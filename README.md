@@ -5,14 +5,15 @@
 </p> <div align="right" style="margin-top: 8px;">
         <i style="color: #8b949e; font-size: 0.5em;">- Makoto Yukey </i>
 </div> --->
-    
 
-  ![nightwing](62319cf8b24127aba20ad64b520c8862.gif)
+
+  ![mzk](giphy.gif)
   
   <p align="center">
   <a href=https://4everblue.atabook.org/> ⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a> 
-      <a href=https://en.pronouns.page/@id-smile> ☆𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘱𝘢𝘨𝘦₊⊹</a>
+      <a href=https://en.pronouns.page/@id-smile> ꣑ৎ𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘱𝘢𝘨𝘦₊⊹</a>
 </p>
+
 
 
     
