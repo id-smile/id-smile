@@ -8,18 +8,11 @@
     
 
   ![nightwing](62319cf8b24127aba20ad64b520c8862.gif)
-  <p align="center">
-    
-  [![nwing](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=38C2FFBE&width=435&lines=A+Knight+in+Blüdhaven+.)](https://git.io/typing-svg)
   
-
-
-   
-<!---
->  
-  <a href=https://4everblue.atabook.org/> ⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a>
+  <p align="center">
+  <a href=https://4everblue.atabook.org/> ⋆.˚‎新𝘣𝘰𝘰𝘬₊⊹</a> 
+      <a href=https://en.pronouns.page/@id-smile> ☆𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘱𝘢𝘨𝘦₊⊹</a>
 </p>
-
 
 
     
